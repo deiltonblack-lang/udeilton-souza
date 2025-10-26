@@ -1,2 +1,3 @@
 ## Udeilton de Souza
 
+Sou Udeilton de Souza, tenho 33 anos, natural do Pará e atualmente moro em Florianópolis (SC). Sou estudante de programação, sempre em busca de aprimorar meus conhecimentos na área e evoluir constantemente. Tenho como objetivo conquistar minha primeira oportunidade profissional na área de desenvolvimento, colocando em prática o que aprendi e contribuindo com dedicação e aprendizado contínuo.
